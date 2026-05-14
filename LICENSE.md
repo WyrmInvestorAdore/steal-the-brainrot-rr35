@@ -1,4 +1,4 @@
-#  
+#  no-ban steal the brainrot base Script is the best steal the brainrot base Script, featuring auto-farm and unlimited stamina. Safe and powerful for
 
 
 
